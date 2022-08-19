@@ -5,7 +5,7 @@ salve meu nome é gideao dos santos sou estudante e judoca.
 
 -lutador de judo.
 
--nao estou casado hehe.
+-Palmerense
 
 
 <!---
